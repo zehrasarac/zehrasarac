@@ -3,7 +3,7 @@
 
 - 🌱 I’m currently learning **everything**
 
-- 📫 How to reach me **zehrassaracg**
+- 📫 How to reach me **zehrassarac@gmail.com
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
